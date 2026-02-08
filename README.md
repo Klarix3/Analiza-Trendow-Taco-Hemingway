@@ -1,0 +1,1 @@
+# Analiza-Trend-w-Taco-Hemingway
